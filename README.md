@@ -1,0 +1,1 @@
+# dekita-sticker-book
